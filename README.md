@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Xavier
+- 👀 I’m interested in Plants & Cheese & Wine
+- 🌱 I’m currently learning EVERYTHING
+- 💞️ I’m looking to collaborate on nothing special
+- 📫 How to reach me ...or not :D
